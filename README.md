@@ -9,3 +9,5 @@ Changed the daily time investment, important and urgent and then important but n
 New way of life is formatted, this's the daily pull request 
 
 November 23rd, confirmed ENTJ - A last night. Good morning starting routine. The very very first positive action to open a pull request in the morning
+
+Good to take a day off, let's expect a new start every day!
